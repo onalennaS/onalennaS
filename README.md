@@ -51,6 +51,7 @@ I'm always expanding my skill set and exploring new technologies. Currently focu
 I'm always open to collaborating on interesting projects or discussing new opportunities. Feel free to reach out!
 
 📧 **Email:** onalennahamese07@gmail.com
+🌐 **Portfolio:** [https://onalennas.github.io/onalennaHamese-Portfolio/](https://onalennas.github.io/onalennaHamese-Portfolio/)
 
 ## 💡 Fun Facts
 
